@@ -1,6 +1,6 @@
 # 闪电机场官网地址
 
-最新地址：[shandiancn.com](https://0313.sd-auto-one.click/#/register?code=cxO0OmrZ)
+最新地址：[shandiancn.com](https://0411.sd-auto-three.click/#/register?code=cxO0OmrZ)
 
 ## 闪电机场简介
 
